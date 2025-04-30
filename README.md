@@ -19,8 +19,8 @@ Located at **By His Stripes Medical Centre**, Zambia
 (Find us on Google Maps embedded on the site!)
 
 ## 📞 Contact
-- WhatsApp: [+1234567890](https://wa.me/1234567890)  
-- Phone: +1234567890  
+- WhatsApp: [+260973481889](https://wa.me/+260973481889)  
+- Phone: +260973481889  
 - Social Media: Facebook, Instagram, Twitter, LinkedIn
 
 ---
