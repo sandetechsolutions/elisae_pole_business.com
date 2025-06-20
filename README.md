@@ -7,6 +7,7 @@ Welcome to the official online portal for **Elisae Pole**, a professional iPhone
 - 🔧 Back Cover Replacement  
 - 🎧 Audio Repair  
 - 📷 Camera Replacement
+- (C.E.O) E.T style Galore - Clothing and Fashion 
 - Open For Business: Amapiano and Club House DJ
 
 Elisae is committed to delivering fast, reliable, and affordable mobile repair services with a personal touch.
