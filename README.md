@@ -16,7 +16,7 @@ Elisae is committed to delivering fast, reliable, and affordable mobile repair s
 
 
 ## 📍 Location
-Located at **By His Stripes Medical Centre**, Zambia  
+Chacha Rd, Rotana  mall, Shop no:24  
 (Find us on Google Maps embedded on the site!)
 
 ## 📞 Contact
