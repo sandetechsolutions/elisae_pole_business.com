@@ -17,7 +17,7 @@ Elisae is committed to delivering fast, reliable, and affordable mobile repair s
 
 ## 📍 Location
 Chacha Rd, Rotana  mall, Shop no:24  
-(Find us on Google Maps embedded on the site!)
+(Find me on Google Maps embedded on the site!)
 
 ## 📞 Contact
 - WhatsApp: [+260973481889](https://wa.me/+260973481889)  
